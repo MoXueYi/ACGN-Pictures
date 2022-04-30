@@ -1,1 +1,1 @@
-# My ACGN Pictures ANT Bolg Pictures.
+# My ACGN Pictures AND Bolg Pictures.
